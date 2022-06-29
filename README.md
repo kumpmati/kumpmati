@@ -1,4 +1,4 @@
-### shredded cheese is my passion 🧀
+### shredded cheese enthusiast 🧀
 
 <!--
 **kumpmati/kumpmati** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
